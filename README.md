@@ -1,1 +1,1 @@
-heyyooo its me the spindriftur
+I enjoy everything about web3
