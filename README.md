@@ -1,1 +1,1 @@
-I enjoy everything about web3
+web3 and data science
